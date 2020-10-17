@@ -1,2 +1,1 @@
-# GANG5TER.github.io
-Repo for GANG5TER.github.io !
+Me @ the age of 20 trying to develop something which is shitless as usual.
